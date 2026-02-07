@@ -3,7 +3,7 @@
 
 - 11/12/1994 Ahmedabad, Born 👼🏽
 - ~1998 Kindergarten 🚸
-- 03/1999-03/2004 Army School, Chandigarh 🎒
+- 03/1999-03/2004 APS, Chandimandir 🎒
 - ~2001 Learned to Swim 🏊🏽‍♂️
 - ~2003 Started Drawing 🎨
 - ~2003 Learned to Ride a Horse 🏇🏽
@@ -17,5 +17,6 @@
 - 17/07/2015-23/02/2016 UI/UX Engineer at InMotion, New Delhi 🧑🏽‍💻
 - 01/04/2016-~ Unemployed 🛑
 - 04/2019-~ Style Writing ✍🏽✨
+
 
 
